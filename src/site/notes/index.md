@@ -9,4 +9,5 @@ es: [Índice](Índice.md)
 # Essays
 
 ## Music
-[On the economy of materials in music](On the economy of materials in music.md)
+[[On the economy of materials in music\|On the economy of materials in music]]
+
