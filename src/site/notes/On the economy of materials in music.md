@@ -9,7 +9,7 @@ The economy of materials is a subject of great importance in the history of West
 
 The ear is naturally drawn to repetition, be it literal, symbolic or abstracted. Economy of materials implies in a necessary way some higher degree of repetition and *vice versa*. Thus, composers are naturally drawn to some economy of material. This is a purely phenomenological observation.
 
-Pairing an absolute economy of materials to other æsthetic/stylistic preferences can soon becomes a task of notable technical difficulty. This is how the ability to produce a piece with notable economy of material became related with the recognition of technical ability (very notable in cases like the pedagogical status of the Fugue, like in the *Prix de Rome*).
+Pairing an absolute economy of materials to other æsthetic/stylistic preferences can soon becomes a task of notable technical difficulty. This is how the ability to produce a piece with notable economy of material became associated with the recognition of technical ability (very notable in cases like the pedagogical status of the Fugue, like in the *Prix de Rome*).
 
 In Western Music, the Germanic tradition became somewhat tied with the economy of materials. This is specially exemplified in the great works of Johann Sebastian Bach, Ludwig van Beethoven and countless others. The æsthetic philosophy of Arnold Schönberg also valued economy of materials, and gave rise to the (extremely formalist) serial æsthetic (that culminates in the pathology of exhaustivity found in Boulez).
 
